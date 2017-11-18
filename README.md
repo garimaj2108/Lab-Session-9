@@ -1,5 +1,5 @@
 # Why Recruiters should hire Santa Clara University's MSIS graduates ?
-![Santa Clara University](https://poetsandquants.com/wp-content/uploads/2011/01/santa-clara-university-business-school.jpg)
+![Santa Clara University](https://pixabay.com/p-1977914/?no_redirect)
 
 ## Claim
 "Recruiters should hire from Santa Clara University"
